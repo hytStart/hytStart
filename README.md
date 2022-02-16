@@ -1,6 +1,6 @@
 ### Hello World, I'm hyt!
 
-#### :heart: emmm, She is my girl！:heart:
+#### :heart: emmm, She She She！:heart:
 
 ![image](https://user-images.githubusercontent.com/34086399/154191912-b851b881-ba16-4d52-8b2d-5bb6da37d30d.png)
 <!-- <img src="https://user-images.githubusercontent.com/34086399/154191912-b851b881-ba16-4d52-8b2d-5bb6da37d30d.png" width="700" height="471" alt="myGirl"/> -->
